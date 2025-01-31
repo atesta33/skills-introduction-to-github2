@@ -1,1 +1,1 @@
-Hello introduction type beat
+Welcome to my GitHub profile!
